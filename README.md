@@ -1,0 +1,1 @@
+# Application-of-the-identification-through-heteroscedasticity-Tariffs-by-the-Trump-Administration
